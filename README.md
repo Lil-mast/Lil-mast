@@ -6,7 +6,7 @@
  💻 Enjoys coding not just as a career, but as a craft and creative pursuit<br>
  🧗 Adventurous by nature — I seek out challenges and believe in doing hard things to grow<br>
  🚀 Continuously learning, exploring, and pushing boundaries — both in tech and in life<br>
-my website portofolio: https://christoantazmainsight.my.canva.site/ 
+my website portofolio: https://thisistaz.framer.website/
 
 
 ## 🌐 Socials:
